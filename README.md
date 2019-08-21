@@ -1,2 +1,2 @@
-# feryoutsiders
-Jancokk asu
+# SMSae
+SMS GRATIS tanpa pulsa....
